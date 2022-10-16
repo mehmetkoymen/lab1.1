@@ -2,3 +2,4 @@
 çok da zor değil sanki
  
 bakalım yapabilecek miyim onu da bilemiyorum
+galiba yaptım
